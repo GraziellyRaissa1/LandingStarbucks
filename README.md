@@ -18,3 +18,4 @@
 -----
 grazyraissa7@gmail.com
 
+![Captura de tela 2024-04-17 230138](https://github.com/GraziellyRaissa1/LandingStarbucks/assets/147439694/00fd04d3-5015-4ac6-a64f-deb0a526528b)
